@@ -1,4 +1,4 @@
-<img src="https://www.presentermedia.com/powerpoint-animation/lightbulb-flashing-ideas-pid-21517"/>
+<div class="tenor-gif-embed" data-postid="26214286" data-share-method="host" data-aspect-ratio="1.34454" data-width="100%"><a href="https://tenor.com/view/programmer-rounded-edges-gif-26214286">Programmer Rounded Edges GIF</a>from <a href="https://tenor.com/search/programmer-gifs">Programmer GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 <!--
 **amarquina80/amarquina80** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
